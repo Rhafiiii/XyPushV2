@@ -4,7 +4,7 @@
    XyPush V2.0
    
    No Enc?, Buyy chat me :
-   w.me/6285878774454
+   w.me/6289507008669
    or
    t.me/Xietyofc
 */
